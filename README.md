@@ -4,4 +4,4 @@
 
 ## 关注账号 发送 关键字：idea
 
-![jishushenghuoerweima.jpg](\jihuoma.jpg)
+![idea激活码](\jihuoma.jpg)
