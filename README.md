@@ -4,4 +4,4 @@
 
 ## 关注账号 发送 关键字：idea
 
-![idea激活码](jihuoma.jpg)
+![idea激活码](http://qiniu.alkin.wang/jihuoma.jpg)
